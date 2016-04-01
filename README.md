@@ -35,7 +35,7 @@ Dit is een wat oudere foto op het orbit festival in groningen.
 met Richel,Noemie,Redmar en ik
 
 
-de foto
+
 ![foto](OrbitFest.jpg)
 
 
