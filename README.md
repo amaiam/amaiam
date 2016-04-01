@@ -42,7 +42,8 @@ met Richel,Noemie,Redmar en ik
 
 
 
-
+we legden arduino uit en ik ben die met dat grijze vest.
+ik leg al iets uit aan een mevrouw
 
 
 
