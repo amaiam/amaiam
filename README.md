@@ -36,7 +36,8 @@ met Richel,Noemie,Redmar en ik
 
 
 
-![foto](/home/amaia/Pictures/20151218OrbitFest.jpg)
+![foto](20151218OrbitFest.jpg)
+
 
 
 
