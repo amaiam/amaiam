@@ -43,7 +43,9 @@ met Richel,Noemie,Redmar en ik
 
 
 we legden arduino uit en ik ben die met dat grijze vest.
-ik leg al iets uit aan een mevrouw
+ik leg al iets uit aan een mevrouw.
+
+het was erg leuk om arduino uit te leggen aan zoveel mensen en iedereen vond het heel gezellig
 
 
 
