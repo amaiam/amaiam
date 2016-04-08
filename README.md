@@ -47,7 +47,7 @@ ik leg al iets uit aan een mevrouw.
 
 het was erg leuk om arduino uit te leggen aan zoveel mensen en iedereen vond het heel gezellig
 
-
+We hopen natuurlijk dat er zoveel mogelijk nieuwe mensen kwamen en komen bij de arduino course.
 
 
 
