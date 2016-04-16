@@ -70,7 +70,9 @@ van 10 tot 4 uur is het open.
 daarna sluiten ze.
 noemie redmar peter thijs en ik zijn er ook.
 
-
+het gaat heel erg goed en het is erg gezellig.
+we hebben veel gegeten zoals pannenkoeken en een hotdog.
+we hebben veel mensen arduino geleerd.
 
 
 
