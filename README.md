@@ -68,7 +68,7 @@ We hopen natuurlijk dat er zoveel mogelijk nieuwe mensen kwamen en komen bij de 
 je kunt er van alles doen met arduino en met andere dingen.
 van 10 tot 4 uur is het open.
 daarna sluiten ze.
-noemie redmar peter thijs jorn en ik zijn er ook.
+noemie redmar peter thijs yinn en ik zijn er ook.
 
 het gaat heel erg goed en het is erg gezellig.
 we hebben veel gegeten zoals pannenkoeken en een hotdog.
