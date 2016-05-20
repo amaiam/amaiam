@@ -88,9 +88,21 @@ en ze vonden het erg leuk.
 
 
 
-ik was gisteren bij de course en ik ben bezig om 12 piano toetsen te maken.
+ik was gisteren bij de cursus en ik ben bezig om 12 piano toetsen te maken.
 ik ben nog niet zo ver maar ik vind het wel leuk om te doen.
 en ik leerde iemand solderen dat was leuk.
+
+
+
+
+
+
+
+21 mei 2016 staat de arduino cursus op de maakplek
+bij het station in een oud postkantoor.
+het is van 1 tot 6 en er staan ook nog andere hele gave dingen.
+
+
 
 
 
