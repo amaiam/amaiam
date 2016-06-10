@@ -7,7 +7,10 @@ Een foto van mij:
 
 ![Foto](zonsondergangSanlucarxcf.jpg)
 
-## Truuks van Richel
+## Truuks voor code
+
+ik hed ze van Richel
+
 
 
 Een lijst gaat zo:
