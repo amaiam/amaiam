@@ -7,9 +7,9 @@ Een foto van mij:
 
 ![Foto](zonsondergangSanlucarxcf.jpg)
 
-## Truuks voor code
+##code truukjes
 
-ik hed ze van Richel
+ik heb ze van Richel
 
 
 
