@@ -72,7 +72,7 @@ en ik leerde iemand solderen dat was leuk.
 bij het station in een oud postkantoor.
 het is van 1 tot 6 en er staan ook nog andere hele gave dingen.
 dit is een foto bij de maakplek.
-![foto](20174473268Maakplek2.jpg)
+![foto](20160521Maakplek2.jpg)
 
 hallo ik ben nu bezig met een robot we gaan er een kat van maken.
 
