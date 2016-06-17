@@ -103,7 +103,7 @@ en ik leerde iemand solderen dat was leuk.
 
 21 mei 2016 staat de arduino cursus op de maakplek
 bij het station in een oud postkantoor.
-het is van 1 tot 6 en er staan ook nog andere hele gave 
+het is van 1 tot 6 en er staan ook nog andere hele gave dingen
 
 
 
