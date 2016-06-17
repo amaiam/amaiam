@@ -73,6 +73,8 @@ bij het station in een oud postkantoor.
 het is van 1 tot 6 en er staan ook nog andere hele gave dingen.
 dit is een foto bij de maakplek.
 ![foto](20160521Maakplek2.jpg)
+we waren buiten omdat het brand allarm afging maar gelukkig kwam het door een machine die iemand had gemaakt die rook gebruikte.
+
 
 hallo ik ben nu bezig met een robot we gaan er een kat van maken.
 
