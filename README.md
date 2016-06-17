@@ -52,20 +52,6 @@ het was erg leuk om arduino uit te leggen aan zoveel mensen en iedereen vond het
 
 We hopen natuurlijk dat er zoveel mogelijk nieuwe mensen kwamen en komen bij de arduino course.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 16 april 2016 is er een open dag bij de jonge onderzoekers.
 
 je kunt er van alles doen met arduino en met andere dingen.
@@ -78,38 +64,20 @@ we hebben veel gegeten zoals pannenkoeken en een hotdog.
 we hebben veel mensen arduino geleerd.
 en ze vonden het erg leuk.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 ik was gisteren bij de cursus en ik ben bezig om 12 piano toetsen te maken.
 ik ben nog niet zo ver maar ik vind het wel leuk om te doen.
 en ik leerde iemand solderen dat was leuk.
 
-
-
-
-
-
-
 21 mei 2016 staat de arduino cursus op de maakplek
 bij het station in een oud postkantoor.
-het is van 1 tot 6 en er staan ook nog andere hele gave dingen
-
-
-
-
+het is van 1 tot 6 en er staan ook nog andere hele gave dingen.
+dit is een foto bij de maakplek.
+![foto](20174473268Maakplek2.jpg)
 
 hallo ik ben nu bezig met een robot we gaan er een kat van maken.
+
+
+
 
 
 
