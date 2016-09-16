@@ -75,8 +75,14 @@ dit is een foto bij de maakplek.
 ![foto](20160521Maakplek2.jpg)
 we waren buiten omdat het brand alarm afging maar gelukkig kwam het door een machine die iemand had gemaakt die rook gebruikte.
 
+hallo vandaag maken noeimie en ik een robot die een kat gaat worden.
 
-hallo ik ben nu bezig met een robot we gaan er een kat van maken.
+hallo vandaag is het vrijdag 15 september.
+ik en noemie zijn nog steeds bezig met onze robot,die als een kat moet gaan rijden en uiteindelijk een zaklamp gaat volgen.
+want we zijn erg lang met vakantie geweest dus kunnen we pas vandaag echt goed beginnen.
+als hij klaar laat ik wel een foto zien en leg ik wat erover uit.
+
+
 
 
 
