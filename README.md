@@ -1,4 +1,4 @@
-# amaiam
+# ᗩᙏᗩIᗩ
 
 
 Dit is mijn eerste website.
