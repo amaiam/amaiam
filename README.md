@@ -82,7 +82,7 @@ ik en noemie zijn nog steeds bezig met onze robot,die als een kat moet gaan rijd
 want we zijn erg lang met vakantie geweest dus kunnen we pas vandaag echt goed beginnen.
 als hij klaar laat ik wel een foto zien en leg ik wat erover uit.
 
-![foto](101_7-640x426.jpg)
+![foto](Materia-101_7-640x426.jpg)
 
 
 
