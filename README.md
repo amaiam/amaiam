@@ -86,11 +86,3 @@ als hij klaar laat ik wel een foto zien en leg ik wat erover uit.
 
 
 dit is een arduino 3D printer 
-
-
-
-
-
- 
-
-
