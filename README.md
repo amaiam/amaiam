@@ -85,6 +85,9 @@ als hij klaar laat ik wel een foto zien en leg ik wat erover uit.
 ![foto](Materia-101_7-640x426.jpg)
 
 
+dit is een arduino 3D printer 
+
+
 
 
 
