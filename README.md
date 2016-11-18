@@ -90,3 +90,7 @@ dit is een arduino 3D printer
 nieuw liedje
 
 https://youtu.be/l3rSkFBZSxU
+
+
+
+de robot die kat gaat worden is al af maar we vinden hem nog een beetje saai dus we gaan hem meer dingen laten doen.
