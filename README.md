@@ -94,3 +94,12 @@ https://youtu.be/l3rSkFBZSxU
 
 
 de robot die kat gaat worden is al af maar we vinden hem nog een beetje saai dus we gaan hem meer dingen laten doen.
+
+
+
+
+
+
+13-1-2017
+
+vrijdag de dertiende gelukkig is er bij mij nog niets gebuirt
