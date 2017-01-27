@@ -103,3 +103,11 @@ de robot die kat gaat worden is al af maar we vinden hem nog een beetje saai dus
 13-1-2017
 
 vrijdag de dertiende gelukkig is er bij mij nog niets gebuirt
+
+
+
+
+
+
+het is nog niet zo een oud ding maar omdat het zo cool is ga ik het laten zien het is een snapchatbril
+![foto]
