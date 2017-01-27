@@ -111,3 +111,6 @@ vrijdag de dertiende gelukkig is er bij mij nog niets gebuirt
 
 het is nog niet zo een oud ding maar omdat het zo cool is ga ik het laten zien het is een snapchatbril
 ![foto](snapchatbril.jpeg)
+
+dit is hem je kunt er mee filmen en het op snapchat terug kijken en als je hem terugkijkt kunj je telefoon draaien alsof je je hoofd aan het draaien bent
+![foto](snapchatbrildraaien.jpeg)
