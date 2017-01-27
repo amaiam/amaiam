@@ -110,4 +110,4 @@ vrijdag de dertiende gelukkig is er bij mij nog niets gebuirt
 
 
 het is nog niet zo een oud ding maar omdat het zo cool is ga ik het laten zien het is een snapchatbril
-![foto]
+![foto](snapchatbril.jpeg)
