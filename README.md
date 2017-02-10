@@ -78,7 +78,7 @@ we waren buiten omdat het brand alarm afging maar gelukkig kwam het door een mac
 hallo vandaag maken noeimie en ik een robot die een kat gaat worden.
 
 hallo vandaag is het vrijdag 15 september.
-ik en noemie zijn nog steeds bezig met onze robot,die als een kat moet gaan rijden en uiteindelijk een zaklamp gaat volgen.
+noemie en ik zijn nog steeds bezig met onze robot,die als een kat moet gaan rijden en uiteindelijk een zaklamp gaat volgen.
 want we zijn erg lang met vakantie geweest dus kunnen we pas vandaag echt goed beginnen.
 als hij klaar laat ik wel een foto zien en leg ik wat erover uit.
 
