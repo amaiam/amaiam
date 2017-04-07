@@ -1,7 +1,7 @@
 # amaiam
 
 
-Dit is mijn eerste website.
+Dit is mijn eerste website.😜
 
 Een foto van mij:
 
