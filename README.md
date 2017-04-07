@@ -102,7 +102,7 @@ de robot die kat gaat worden is al af maar we vinden hem nog een beetje saai dus
 
 13-1-2017
 
-vrijdag de dertiende gelukkig is er bij mij nog niets gebuirt
+Vrijdag de dertiende gelukkig is er bij mij nog niets gebuirt.
 
 
 
@@ -116,4 +116,4 @@ dit is hem je kunt er mee filmen en het op snapchat terug kijken en als je hem t
 ![foto](snapchatbrildraaien.jpeg)
 
 7-4-2017
-ik ben nu bezig met een lcd scherm en een muis
+ik ben nu bezig met een lcd scherm en een muis.Ik weet niet hoe snel ik hem ga af krijgen want ik ben nog steeds met oude projecten bezig.ツ😉
