@@ -114,3 +114,6 @@ het is nog niet zo een oud ding maar omdat het zo cool is ga ik het laten zien h
 
 dit is hem je kunt er mee filmen en het op snapchat terug kijken en als je hem terugkijkt kun je je telefoon draaien alsof je je hoofd aan het draaien bent
 ![foto](snapchatbrildraaien.jpeg)
+
+7-4-2017
+ik ben nu bezig met een lcd scherm en een muis
