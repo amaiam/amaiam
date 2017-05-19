@@ -119,4 +119,4 @@ dit is hem je kunt er mee filmen en het op snapchat terug kijken en als je hem t
 ik ben nu bezig met een lcd scherm en een muis.Ik weet niet hoe snel ik hem ga af krijgen want ik ben nog steeds met oude projecten bezig.🌈😉
 
 19-5-2017
-ik ben nu weer bezig met mijn piano.🎹🎶
+ik ben nu weer bezig met mijn piano.🎹🎶 
