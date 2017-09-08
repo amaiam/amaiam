@@ -122,3 +122,5 @@ ik ben nu bezig met een lcd scherm en een muis.Ik weet niet hoe snel ik hem ga a
 ik ben nu weer bezig met mijn piano.🎹🎶 
 
 ik heb net een regenboog gemaakt.🌈🦄
+
+
