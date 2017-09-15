@@ -102,7 +102,7 @@ de robot die kat gaat worden is al af maar we vinden hem nog een beetje saai dus
 
 13-1-2017
 
-Vrijdag de dertiende gelukkig is er bij mij nog niets gebuirt.😅
+Vrijdag de dertiende gelukkig is er bij mij nog niets gebeurdt.😅
 
 
 
