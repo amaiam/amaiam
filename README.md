@@ -123,4 +123,6 @@ ik ben nu weer bezig met mijn piano.🎹🎶
 
 ik heb net een regenboog gemaakt.🌈🦄
 
+vandaag help ik iemand een regenboog te maken.🌈
+
 
