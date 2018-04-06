@@ -29,18 +29,9 @@ void loop()
 }
 ```
 
-
 Dit is een wat oudere foto op het orbit festival in groningen.
 
-
-
 ![foto](20151218OrbitFest.jpg)
-
-
-
-
-
-
 
 het was erg leuk om arduino uit te leggen aan zoveel mensen en iedereen vond het heel gezellig.
 
@@ -48,8 +39,8 @@ het was erg leuk om arduino uit te leggen aan zoveel mensen en iedereen vond het
 bij het station in een oud postkantoor.
 het is van 1 tot 6 en er staan ook nog andere hele gave dingen.
 dit is een foto bij de maakplek.
+
 ![foto](20160521Maakplek2.jpg)
 
-
-
- 
+6 April:
+Ik ga vandaag wat dingen op github.com aanpassen.
