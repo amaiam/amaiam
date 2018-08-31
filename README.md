@@ -42,11 +42,11 @@ dit is een foto bij de maakplek.
 
 ![foto](20160521Maakplek2.jpg)
 
-6 April:
+6 April, 2017:
 
-Ik ga vandaag wat dingen op github.com aanpassen.
+Ik ga vandaag wat dingen op github.com aanpassen👩‍💻.
 
 31 Augustus, 2018, 19:19 :
 
-Vandaag ben ik een oudere les weer aan het uitproberen, een regenboog lampje maken.
+Vandaag ben ik een oudere les weer aan het uitproberen, een regenboog lampje maken🌈.
 
