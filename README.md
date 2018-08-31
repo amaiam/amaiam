@@ -45,3 +45,8 @@ dit is een foto bij de maakplek.
 6 April:
 
 Ik ga vandaag wat dingen op github.com aanpassen.
+
+31 Augustus, 2018, 19:19 :
+
+Vandaag ben ik een oudere les weer aan het uitproberen, een regenboog lampje maken.
+
